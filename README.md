@@ -1,1 +1,0 @@
-# Kishasita-s-Indoor-Plants
